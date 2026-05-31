@@ -1,5 +1,5 @@
 <p align="center">
-<img width="600" height="252" alt="download" src="https://github.com/user-attachments/assets/2c814604-fb83-43f4-8790-ab8dae13b8c2" />
+<img width="800" height="251" alt="sayaka-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/bc69437b-8b4b-4cd8-bfe2-1586efe229a1" />
 </p>                           
                                                     
                                                              DNI LIST:
