@@ -6,12 +6,5 @@
 
 <img width="1000" height="136" alt="download (1)" src="https://github.com/user-attachments/assets/66ba5a41-14a1-46ae-a24e-0c9cf56c4eb0" />
 
-                         
-                                                    
-                                                             DNI LIST:
-                                                    
-      
-                   Proshippers, people who condone proshipping, racist ppl, homophobes, transphobic ppl, pedos
-                   
 
 
