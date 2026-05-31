@@ -1,5 +1,6 @@
                                                     DNI LIST:
-                    Proshippers, people who condone proshipping, racism, homophobia, transphobia
+                                                    
+             Proshippers, people who condone proshipping, racist ppl, homophobes, transphobic ppl, pedos
 
 <!--
 **Sahtauroo24/Sahtauroo24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
