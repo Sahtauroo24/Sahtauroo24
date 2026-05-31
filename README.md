@@ -1,4 +1,6 @@
-   <img width="1037" height="700" alt="Zoe Stanley Arts" src="https://github.com/user-attachments/assets/8dc737c3-19f3-4985-a4d1-d41b35fd018d" />                              
+<p align="center">
+<img width="600" height="252" alt="download" src="https://github.com/user-attachments/assets/2c814604-fb83-43f4-8790-ab8dae13b8c2" />
+</p>                           
                                                     
                                                              DNI LIST:
                                                     
