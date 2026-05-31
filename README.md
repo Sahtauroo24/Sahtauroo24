@@ -1,6 +1,9 @@
-                                                    DNI LIST:
+   <img width="1037" height="700" alt="Zoe Stanley Arts" src="https://github.com/user-attachments/assets/8dc737c3-19f3-4985-a4d1-d41b35fd018d" />                              
                                                     
-             Proshippers, people who condone proshipping, racist ppl, homophobes, transphobic ppl, pedos
+                                                             DNI LIST:
+                                                    
+      
+                   Proshippers, people who condone proshipping, racist ppl, homophobes, transphobic ppl, pedos
 
 <!--
 **Sahtauroo24/Sahtauroo24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
